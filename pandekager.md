@@ -16,4 +16,4 @@
 
 5. Bag pandekager i olie
 
-Vi har da brug for noget ild! Pandekager kræver ILD :) 
+Vi har da brug for noget ild! Pandekager kræver DILD :( 
